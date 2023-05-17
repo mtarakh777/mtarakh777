@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+![logo](https://github.com/mtarakh777/mtarakh777/blob/main/Green%20Vibrant%20Professional%20Data%20Analyst%20LinkedIn%20Banner(1)1.png)
 <!--
 **mtarakh777/mtarakh777** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
